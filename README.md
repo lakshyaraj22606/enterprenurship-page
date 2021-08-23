@@ -1,1 +1,0 @@
-# searchybar.github.io
